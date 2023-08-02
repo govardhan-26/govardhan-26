@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **bgrnaidu@gmail.com**
 
-- 📄 Know about my experiences [Click Here](https://drive.google.com/file/d/14Pb9NhezoU60QA4hoFthHWoOXUF328yL/view)
+- 📄 Know about my experiences [Click Here](https://drive.google.com/file/d/1Kx5zyKD8LyW65oobnZJtDEQSbpHa2TJH/view?usp=sharing)
 
 
 
